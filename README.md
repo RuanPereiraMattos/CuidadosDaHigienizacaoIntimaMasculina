@@ -1,2 +1,1 @@
 # CuidadosDaHigienizacaoIntimaMasculina
-# ruanpereiramattos.github.io
